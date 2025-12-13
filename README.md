@@ -1,0 +1,64 @@
+# YUGUREMI – ヘイセイパーリナイ
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Jump! 平成
+Jump! shake it
+MD回して踊れダンシング
+Jump! 平成
+Jump! shake it
+ドクグリVSアルファゲル
+Jump! 平成
+Jump! shake it
+ルートにプリクラ 裏に貼っちゃお
+Jump! 平成
+Jump! shake it
+あの日々は青春だった
+今宵は昔を思い出して
+僕らの核は あの時代で
+今も思い出して話す
+ワンセグ使いの魔法使いの少年
+サブスクなにそれ？着うた一択
+ウィルコムカップルは毎日電話してた
+今も悪くないけど
+あの頃の思い出詰まってて
+「平成レトロ」だってさ
+まだまだ僕らの中では体の一部で
+Jump! 平成
+Jump! shake it
+アムラー真似たギャルも踊れダンシング
+Jump! 平成
+Jump! shake it
+M字バングと腰パン男子
+Jump! 平成
+Jump! shake it
+センター問い合わせ 心臓はエンジン
+Jump! 平成
+Jump! shake it
+あの日々は青春だった
+今宵は昔を思い出して
+夜中に光る画面はSP
+朝一キメるはこのGATSBY
+どこでも消せるんだカドケシ
+屋上で叫ぶんだ 主張
+Jump! 平成
+Jump! shake it
+あの頃は面白かったね
+Jump! 平成
+Jump! shake it
+ここらでまたタイムスリップ
+Jump! 平成
+Jump! shake it
+バッドボーイ着こなせ踊れ男子
+Jump! 平成
+Jump! shake it
+赤緑青、黄色はスカしてる
+Jump! 平成
+Jump! shake it
+通信ケーブル持ちは主役
+Jump! 平成
+Jump! shake it
+あの日々は青春だった
+今宵は昔を思い出して
+```
